@@ -3,3 +3,4 @@ don de la verdad; que domina el de mentira, y , don de justicia, don de pudol. m
 https://marketg.com/ yo quiero ser el manager de todas estas compañías 
 https://github.com/nashiijem-art/Marketg
 https://github.com/nashiijem-art/SD- está tiene todas las reglas de los bancos, porque tengo la onion de la gifscard
+https://github.com/nashiijem-art/Mi-autoridad-de-mi-Compa-ia
