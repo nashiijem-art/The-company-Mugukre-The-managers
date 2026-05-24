@@ -4,3 +4,4 @@ https://marketg.com/ yo quiero ser el manager de todas estas compañías
 https://github.com/nashiijem-art/Marketg
 https://github.com/nashiijem-art/SD- está tiene todas las reglas de los bancos, porque tengo la onion de la gifscard
 https://github.com/nashiijem-art/Mi-autoridad-de-mi-Compa-ia
+utilizar el RNP.com y sacar la licencia de managers aquel ADN que tiene la licencia y también el abogado; más un Juez Justos
